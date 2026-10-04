@@ -1,4 +1,4 @@
-# Hi there, I'm Rajkumar Kushwaha 👋
+# Hi, I'm Rajkumar Kushwaha 👋
 
 🚀 **B.Tech CSE (AI) Student | Top 7 Finalist - Lenovo LEAP AI Hackathon '26 | GFG Campus Mantri '26**
 
